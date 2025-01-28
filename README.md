@@ -1,2 +1,2 @@
-# -d-appleid-Google-
-https://t.me/appleidgooglejd
+# 节d-appleid-Google-
+Tg群:https://t.me/appleidgooglejd
